@@ -1,4 +1,4 @@
-# --Cloudsentix-Tech-LLP-Data-analyst-internship---Himanshu-Bhatt
+# --CloudsentixTech LLP-Data-analyst-internship---Himanshu-Bhatt
 # Internship Experience – Data Analyst Intern  
 **Cloudsentix Tech LLP**  
 Mar 2025 – Dec 2025  
